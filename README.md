@@ -4,7 +4,9 @@
 - 💞️ I’m looking to collaborate on Many things! Just shoot me a DM on discord.
 - 📫 How to reach me 
 Zesty@MintRoleplay.com
+
 https://steamcommunity.com/profiles/76561198213187232
+
 Brillowo#4210
 
 
